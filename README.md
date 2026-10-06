@@ -2,5 +2,5 @@
 
 - 👨‍🎓 Seneca college graduate
 - 💬 Ask me about new tech updates
-- 📫 How to reach me: harsh.patel.atwork@gmail.com or [LinkedIn](www.linkedin.com/in/the-harsh-patel)
+- 📫 How to reach me: harsh.patel.atwork@gmail.com or [LinkedIn](www.linkedin.com/in/harsh-p19)
 
